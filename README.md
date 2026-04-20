@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي قلبي معاك
+> نور عيني أنا بهواك
+> شوقي ليك ملوش حدود
+> في سكوتك سر الوجود
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
